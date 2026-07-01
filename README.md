@@ -42,7 +42,7 @@ I'm on a dedicated journey to become one of **Africa's leading cybersecurity exp
 ### 🌍 Connect With Me
 - **LinkedIn**: [Your LinkedIn URL]
 - **Blog**: (Coming Soon)
-- **Email**: your.email@example.com
+- **Email**: heznyamwaya@gmail.com
 
 ---
 
